@@ -1,10 +1,12 @@
-"Finished as fast as a Gallimimus!"
+"Is my shell chipped?"
 
 HELLO!! REDOING THIS AS OF 1/11/2025 BECAUSE IM NOT SATISFIED WITH THE ORIGINAL !
 
 C*H (cuddle and hide) & W2i (whisper to interact) are HIGHLY reccommended and preferred. yes i am one of those people who get on this game and just tab out for long intervals of time to do other things, sometimes i can be more active but usually you'll just find me sitting around in one of my little areas. never be afraid to interact, i enjoy the company or the whispers when i do check them.
 
 if i see someone with c*h in their name i will sometimes run up to them and sit down, that is if i'm not feeling too terribly shy. see i kind of hesitate to run up to people and sit with them myself because i feel as though i am being a nuisance or that they think im sitting with them purely for shippy reasons. that just isnt the case! i'll sit with anyone in my fandoms as long as they let me. if i crown you that probably means im trying to warm up to you and imply i'd like to sit with you but im too much of a pussy to say it.
+
+from time to time i do like sitting with characters im fond of. if i see an astro or a vee with c*h in their name trust you WILL be dealt with. /pos
 
 i have like 500 interests, the most prominent at the moment being dandys world, ultrakill (i am litally v1), roblox games in general (regrev, phighting, etc) and beastars. there are definitely a LOT more but for the moment those are the ones that captivate me the most.
 
